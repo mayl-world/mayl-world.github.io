@@ -1,0 +1,3 @@
+The **Northern Continent** of [[Mayl]] is situated to the north of the [[Umbracine Sea]]. It is split into three regions, [[Yalen Bay]], [[Gaeicland]], and [[Westland]]. The north contains the tall [[Icespire Peaks]], and the [[Heartwood Forest]], and the center is home to the giant [[Eruchest Forest]].
+
+A majority of nations within the Northern Continent have joined the [[The Unum Tribunal]] and are participating in [[The Sundering War]] against [[Laudia]] and [[Ibestia]].

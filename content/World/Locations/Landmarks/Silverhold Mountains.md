@@ -1,0 +1,1 @@
+The **Silverhold Mountains** are a mountain range that separates the [[Adunican Peninsula]] from the rest of the [[Southern Continent]]. The mountains are home to the [[Silverhold Dwarves]], and have large deposits of silver, and [[Mythril|mythril]].

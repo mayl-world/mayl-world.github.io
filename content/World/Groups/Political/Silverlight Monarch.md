@@ -1,0 +1,1 @@
+The **Silverlight Monarch** is the head of [[The Lunar Dynasty]], and said to be descendants of the moon saint, [[Lumiara]]. The title of Silverlight Monarch is passed down hereditarily, with the pervious monarch being the parent of the current monarch.

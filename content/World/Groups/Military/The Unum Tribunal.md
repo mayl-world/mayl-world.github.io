@@ -1,0 +1,1 @@
+**The Unum Tribunal** is a military coalition with the main goal of upholding [[The Unum Accord]]. The Tribunal has gathered an army to conquer [[Ibestia]] and [[Laudia]] and reinstate the order of The Unum Accord. 

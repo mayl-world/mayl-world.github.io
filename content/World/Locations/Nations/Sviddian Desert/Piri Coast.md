@@ -1,3 +1,4 @@
+**Languages:** [[Common]], [[Myneth]]
 The **Piri Coast** is a [[Nations|nation]] within the [[Southern Continent]] of [[Mayl]]. It used to be various city-states that decided to unite under a single government. Their location near the [[Sviddian Desert]] means that many explorers wishing to adventure into the desert use the Piri Coast as a launch site of their expeditions. There are many libraries filled with information that was found in the ruins of the Sviddian Desert.
 
 ### Meta Ramblings

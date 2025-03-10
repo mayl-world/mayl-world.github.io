@@ -1,0 +1,1 @@
+**Dark Elves** are a type of [[Elves|elf]] that reside mostly within the [[Underdark]]. These elves are similar in look to [[Moon Elves]], with the light hair, and purple or blue tinted skin. Dark elves tend to be more brutal, due to their connection with [[Magnus]].

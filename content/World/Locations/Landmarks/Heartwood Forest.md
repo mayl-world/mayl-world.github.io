@@ -1,0 +1,1 @@
+The **Heartwood Forest** is a forest located within [[Hjaalland]] in the northern part of the [[Northern Continent]] of [[Mayl]]. It is home to the [[Heartwood Tree]], a tree that is warm to the touch and as hard as iron. The collection of warm trees give the forest an unusually warm climate for its latitude. 

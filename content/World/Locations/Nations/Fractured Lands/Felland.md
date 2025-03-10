@@ -1,3 +1,4 @@
+**Languages:** [[Common]], [[Hard Tongue]] ([[Giant]] Based)
 **Felland** is a [[Nations|nation]] located within the [[Southern Continent]] of [[Mayl]]. It shares a border with [[The Kingdom of Sen]] in the north, and [[The Krystad Dominion]] in the south. It has a rocky terrain, with sheer coastal cliffs.
 
 ### Government

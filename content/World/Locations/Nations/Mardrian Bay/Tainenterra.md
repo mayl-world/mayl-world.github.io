@@ -1,3 +1,4 @@
+**Languages:** [[Common]], [[Orcish]]
 **Tainenterra** is a [[Nations|nation]] located at the mouth of the [[Mardrian Bay]] within the [[Southern Continent]] of [[Mayl]]. Most of the nation is covered by the dangerous [[Barbartre Woods]], with only the shore in the north being outside of the woods. 
 
 ### Government

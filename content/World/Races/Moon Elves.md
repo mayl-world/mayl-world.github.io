@@ -1,0 +1,3 @@
+**Moon Elves** are a type of [[Elves|elf]] that reside within [[The Lunar Dynasty]]. Moon elves tend to have a range of skin colors, from bright pale to a deep purple. Though the skin of Moon Elves always has a hue of blue or purple. Moon Elves also always have white hair.
+
+Moon Elves are followers of [[Lumiara]], and worship [[Mynara]]. They follow their leader, the, [[Silverlight Monarch]], and listen to the sage advise of the [[Star Gazers]].

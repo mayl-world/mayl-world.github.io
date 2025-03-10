@@ -1,0 +1,1 @@
+**Mythril** is a precious metal that is strong, and lightweight. There are large amounts of mythril within the [[Silverhold Mountains]].

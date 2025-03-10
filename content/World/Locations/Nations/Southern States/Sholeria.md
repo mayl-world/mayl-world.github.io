@@ -1,3 +1,4 @@
+**Languages:** [[Orcish]], [[Common]]
 **Sholeria** is a [[Nations|nation]] located in the [[Southern Continent]] of [[Mayl]]. It is a kingdom that is comprised of mainly orcs. The unification was brought on only by their conquering by [[Shah Dimurlan Bey]], as an attempt to gain their freedom. 
 
 Almost all of Sholderia is a part of the [[Barbartre Woods]], a massive forest that spans Sholeria and [[Tainenterra]]. The woods are home to many deadly monsters, and make life there dangerous and short-lived. 

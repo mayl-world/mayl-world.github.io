@@ -1,0 +1,1 @@
+The **Prime Material Realm** is a plane of existence. This plane is considered to be central to all other planes, and home to the humanoids. This plane of existence contains the world of [[Mayl]] and all of its inhabitants.

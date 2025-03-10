@@ -1,0 +1,1 @@
+The **Star Gazers** are a group of three ascetics that watch the stars to divine fate, glean wisdom and guidance. They are considered an advisory body in [[The Lunar Dynasty]], and hold massive political power there.

@@ -1,0 +1,1 @@
+The **Heartwood Tree** is a tree that is warm to the touch, and is as hard as iron. These trees are located in the [[Heartwood Forest]], and mainly used by the people of [[Hjaalland]]. 

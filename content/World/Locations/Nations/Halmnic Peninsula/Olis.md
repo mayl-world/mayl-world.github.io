@@ -1,1 +1,2 @@
+**Languages:** Adamic [[Dwarvish]], [[Myneth]], [[Common]]
 **Olis** is a [[Nations|nation]] and city-state in the [[Halmnic Peninsula]] in the [[Southern Continent]] of [[Mayl]]. It sits on top of, and near [[Mount Vargyssos]]. There is a large dwarf population within this city-state which mines strong adamantine from the mountain. Olis has strong fortified cities that protects it from invaders, and trades its Adamantine with nearby city-states.

@@ -1,0 +1,1 @@
+**High Elves** are a kind of [[Elves|elf]] that reside within the [[Eruchest Forest]]. These are considered to be the most arcane of all elves due to their proximity to the portal in the [[Gaiasphon]]. These elves, when they prove worthy, conduct a coming of age ceremony and enter the [[Feywild]].

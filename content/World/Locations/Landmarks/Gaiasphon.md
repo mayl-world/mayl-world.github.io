@@ -1,0 +1,1 @@
+The **Gaiasphon** is a massive tree within the center of the [[Eruchest Forest]]. It is a sacred tree that was said to be a gift to [[Elves|Elvenkind]]. At the root of the tree is the city, [[TBD]], which houses the portal into the [[Feywild]].

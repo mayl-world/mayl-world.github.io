@@ -1,3 +1,4 @@
+**Languages:** [[Common]], [[Ghulnic]] ([[Primordial]] Based)
 The **Ghunal Tribes** are a group tribes that make up a unified [[Nations|nation]]. The Ghunal Tribes are situated within the [[Ghunal Desert]] which is in the [[Southern Continent]] of [[Mayl]]. Their territory is bordered with [[Laudia]], [[The Krystad Dominion]], and [[Pers]]. The tribes consist of male nomads, who form caravans to trade goods within the desert and with neighbors, and settlements, where women defend and take care of the children and elderly. These settlements also farm along the fertile river, and act as security to protect from tribal raids. 
 
 ### Societal Structure

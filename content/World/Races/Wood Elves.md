@@ -1,0 +1,1 @@
+**Wood Elves** are a type of [[Elves|elf]] that reside in forests and woods all over [[Mayl]]. They usually have a strong connection to nature and the earth, being able to survive off of little to no food so long as they have direct sunlight. 

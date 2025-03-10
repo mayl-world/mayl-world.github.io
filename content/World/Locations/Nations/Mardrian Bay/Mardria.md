@@ -1,3 +1,4 @@
+**Languages:** [[Common]]
 **Mardria** is a [[Nations|nation]] located on the shores of the [[Mardrian Bay]] in the [[Southern Continent]] of [[Mayl]]. It is a nation that is surrounded with crime, violence, and slavery. Its entire political structure revolves around local gangs providing protection to those that work for them, and the [[Head of Mardria|Head]] giving large sums of gold to those that do his bidding.
 
 ### Government

@@ -1,3 +1,4 @@
+**Languages:** [[Giant]], [[Visen]] ([[Common]] Based), [[Common]]
 **Horgo** is a [[Nations|nation]] located in the [[Macchus Valley]] in the [[Southern Continent]] in [[Mayl]]. It borders [[Sholeria]] to the north, and [[The Lunar Dynasty]] to the south. However, its geographical position within the valley isolates it. It is ruled by the [[Tyrant King Olmus]] and his [[Bandit Knights]]. The [[Gestfrul River]] runs through the center of Horgo, giving fertile lands to farm.
 
 ### Government

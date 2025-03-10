@@ -1,0 +1,1 @@
+The **Lunar Ridge Mountains** are a mountain range within the [[Southern Continent]] of [[Mayl]]. It sits to the north of [[The Lunar Dynasty]] and is often use for sky watching by the [[Star Gazers]]. The Lunar Ridge Mountains are apart of the same mountain system as the [[Silverhold Mountains]]. 

@@ -1,0 +1,1 @@
+The **Icespire Peaks** are a mountain range spanning from the north of the [[Northern Continent]] of [[Mayl]] down into the heart of the continent. These mountains are amongst the tallest in all of Mayl, with the northern most being treacherous for most humanoid life. Various giant life forms make their home in these mountains, hunting other life that resides there.

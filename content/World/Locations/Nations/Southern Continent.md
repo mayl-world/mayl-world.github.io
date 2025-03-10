@@ -1,0 +1,3 @@
+The **Southern Continent** of [[Mayl]] is situated to the south of the [[Umbracine Sea]]. It is split into 7 regions, the [[Fractured Lands]], [[Central States]], [[Adunican Peninsula]], [[Mardrian Bay]], [[Southern States]], [[Sviddian Desert]], and [[Halmnic Peninsula]]. On the northern coast of the continent is the large [[Ghunal Desert]], with the [[Adunican Peninsula]] and [[The Krystad Dominion|Krystad]] to the east and west respectively. 
+
+The [[Nations]] in the south of this continent are not active participants in [[The Sundering War]]. 

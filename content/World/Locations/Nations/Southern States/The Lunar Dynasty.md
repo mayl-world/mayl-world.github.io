@@ -1,3 +1,4 @@
+**Languages:** [[Stellan]] ([[Elvish]] Based), [[Elvish]], [[Common]]
 **The Lunar Dynasty** is a nation situated in the southern most point of [[Mayl|Mayl's]] [[Southern Continent]]. It shares a small border with [[Horgo]]. The sun never rises in the land of the Lunar Dynasty. leaving just moonlight to bathe the land. Due to the lack of sunlight, and constant moonlight, all of the plants have a red tint to them. The Lunar Dynasty is almost made up entirely of [[Moon Elves]]. 
 
 ### Government
