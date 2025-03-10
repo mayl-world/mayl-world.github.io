@@ -18,7 +18,7 @@ There is a growing group that have begun to follow [[Lucis Aurellius]] fiercely 
 
 ## Society and Culture
 
-- **Population:** 76% [[Human]], 13% [[Dwarf]], 6% [[Gnome]], 4% [[Elves|Elf]], 1% Other
+- **Population:** 76% [[Humans|Human]], 13% [[Dwarf]], 6% [[Gnome]], 4% [[Elves|Elf]], 1% Other
 - **Religion(s):** 86% [[Heron]], 13% [[Alanus]]
 - **Language(s):** [[Common]], [[Dwarvish]]
 - **Traditions & Festivals:** [[The Imperial Games]]

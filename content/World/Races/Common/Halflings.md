@@ -1,0 +1,1 @@
+**Halflings** are a [[Races|race]] within [[Mayl]] that live most closely alongside [[Humans]]. Halflings are usually a lot more settled, rarely leaving home to trade or travel. Due to their settled nature, it is common to find halflings working as farmers or miners amongst the [[Humans]] and [[Dwarves]].

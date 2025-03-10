@@ -1,0 +1,3 @@
+**Goliaths** are a [[Races|race]] within [[Mayl]]. They are tall and possess pale skin due to their closeness to mountains and [[Giants]]. They tend to live on the peaks of mountains where snow is permanent. Some live at the foot of the [[Icespire Peaks]], where snow is frequent. Goliaths keep amongst themselves, and stick together in small numbers. They build their towns on the mountain ridges out of stone. 
+
+Because of their proximity to mountains, goliaths often come into contact with [[Dwarves]], usually resulting in a conflict. Goliaths also interact with the northern people of [[Hjaalland]].

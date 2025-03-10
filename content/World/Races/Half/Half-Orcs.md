@@ -1,0 +1,3 @@
+**Half-Orcs** are a half-[[Races|race]] within [[Mayl]]. They are descendants of [[Humans]] and [[Orcs]]. Because half-orcs are usually stronger than humans, they are accepted as useful hard workers within human society. Some humans might be cold or rude to half-orcs due to their difference or "corruption" of human blood, but these people are few and far between.
+
+In orc society, half-orcs are prized as pieces of human blood. They tend to try and raise half-orcs in accordance with half-orc customs. This reverence towards a half-orc will quickly fade if they show no sign or orcish culture.

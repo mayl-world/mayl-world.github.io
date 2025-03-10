@@ -1,0 +1,1 @@
+**Firbolgs** are a nomadic [[Races|race]] within [[Mayl]]. They are hunters and gatherers, traveling the land in packs in search of food. Few firbolgs find lush places within nature to live and sustain themselves and their pack. Usually firbolgs keep to themselves, but they often have conflicts with the more territorial [[Orcs]].

@@ -1,0 +1,3 @@
+**Genasi** are a [[Races|race]] within [[Mayl]], and were born very similar to [[Humans]]. As a genasi reaches adulthood, they will slowly show signs of their genasi type. Genasis are humans that have been born during celestial anomalies, granting them a connection to an elemental plane. Because genasi have natural magic powers, they are usually forced to live on the outside of human society, or in a smaller village hiding their gift.
+
+Genasi come in four main types: Fire, Earth, Water, and Air.

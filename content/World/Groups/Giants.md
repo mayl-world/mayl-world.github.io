@@ -1,0 +1,1 @@
+**Giants** are an ancient race that walked [[Mayl]] during its creation. Legends say that the giants were the original natural forces, and turned into the spirits that cause the natural world to function. They say the spirits of the giants are responsible for things like weather, and wind, and, according to some, time.

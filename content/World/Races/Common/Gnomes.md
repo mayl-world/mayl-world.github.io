@@ -1,0 +1,1 @@
+**Gnomes** are a [[Races|race]] within [[Mayl]] that are said to be a creation of a mad [[Dwarves|Dwarf]] wizard. It is said that, because of their origin, gnomes tend to be intellectual and inventive. Gnomes usually serve as a working class of tinkerers and engineers for [[Dwarves]]. They create tools and engineer ways for dwarves to mine or farm more efficiently.

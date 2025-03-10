@@ -1,0 +1,1 @@
+The **Hayan River** is a river that flows through [[Pers]] and the [[Ghunal Desert]] into the [[Umbracine Sea]]. It provides fertile ground that people gather near to farm.

@@ -1,0 +1,1 @@
+**Dwarves** are a [[Races|race]] within [[Mayl]] that usually live in the mountains and hills of the world. They usually build their homes with the stones and metals they mine from the ground. It is uncommon to find a dwarf outside of their home, but some venture out to adventure or trade their finely crafted goods.
