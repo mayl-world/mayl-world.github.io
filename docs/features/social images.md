@@ -307,7 +307,7 @@ export const customImage: SocialImageOptions["imageStructure"] = (
 >         alignItems: "flex-start",
 >         height: "100%",
 >         width: "100%",
->         backgroundImage: `url("https://${cfg.baseUrl}/static/og-image.jpeg")`,
+>         backgroundImage: `url("https://i.imgur.com/MVGiq1H.png")`,
 >         backgroundSize: "100% 100%",
 >       }}
 >     >
