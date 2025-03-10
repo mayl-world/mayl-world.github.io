@@ -1,0 +1,1 @@
+**Hobgoblins** are a [[Races|race]] that were created by mages of [[The Aurellian Empire]]. The mages captured goblin bands, along with various other criminals and prisoners of war and experimented on their blood. The result was a group of intelligent, cunning, and strong warriors of red skin, that were used as an elite military force for the [[The Aurellian Empire|The Empire]]. 

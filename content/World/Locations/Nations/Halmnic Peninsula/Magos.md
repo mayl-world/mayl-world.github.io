@@ -1,0 +1,1 @@
+**Magos** is a [[Nations|nation]] and city-state in the [[Halmnic Peninsula]] within the [[Southern Continent]] of [[Mayl]]. Magos is a democratic society, with each citizen debating and making their concerns known. Due to the threat of [[The Operus Empire]], many citizens have voted to raise and army, spending large sums of their reserve to do so. 

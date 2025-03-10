@@ -1,0 +1,1 @@
+**Mynara** is the goddess of the moon for the people of [[The Lunar Dynasty]]. She is not worshiped by people other than [[Moon Elves]].

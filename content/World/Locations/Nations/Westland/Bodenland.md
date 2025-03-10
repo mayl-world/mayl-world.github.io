@@ -1,0 +1,5 @@
+**Languages**: [[Common]], [[Ketch]] (Giant Based)
+
+**Bodenland** is a [[Nations|nation]] in the western part of the [[Northern Continent]]. It shares a border with [[Nestadhof]] to the north, and [[The Kingdom of Sen]] to the south. Bodenland is comprised of 12 clans scattered throughout. These clans have a strong sense of honor and tradition. They spend their free time playing traditional sports, such as wrestling, stone throwing, and even tree tossing. 
+
+These clans are independent and have no distinct borders between them. They all have different ways of governing, and handle internal disputes differently. When clans have conflicts between each other, the other clans act as mediators, and help resolve the disputes with fairness. If conflicts cannot be solves, the parties often engage in a duel to settle their differences. The terms of the duel are set by the mediating clans, and depending on the severity of the conflict can range from first blood to death. 

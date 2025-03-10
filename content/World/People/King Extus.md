@@ -1,0 +1,1 @@
+**King Extus** was the last wise king of [[Horgo]] and was assassinated by [[Threagil the Vicious]], the leader of the [[Bandit Knights]].

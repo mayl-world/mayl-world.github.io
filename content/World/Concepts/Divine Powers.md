@@ -1,0 +1,1 @@
+**Divine Powers** are magical powers held by powerful beings that usually exist outside of the [[Prime Material Realm]]. These powers are used to fuel acts of creation, destruction, and authority. Often times, small fragments of these powers are borrowed by devout followers of these powerful beings, usually [[Cleric|clerics]].

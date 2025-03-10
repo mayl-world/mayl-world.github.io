@@ -1,0 +1,1 @@
+The **Festival of Night** is a celebration of the afterlife. People leave home dressed in costume where they must participate in games before heading back home. This is symbolic of the journey of the spirits within afterlife and the trials they face on their way to their ancestral home.

@@ -1,0 +1,1 @@
+**The Sundering War** is an ongoing conflict between the [[The Unum Tribunal]] and the alliance between [[Laudia]] and [[Ibestia]]. It started with [[The Principal Betrayal]], where the prince of Laudia was discovered practicing magic, breaking [[The Unum Accord]].

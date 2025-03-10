@@ -1,0 +1,1 @@
+**The Umbracine Sea** is a body of water dividing the [[Northern Continent]] and the [[Southern Continent]]. There is a large trench that spans the length of the sea, and leaves the center appearing darker than the shallow edges. 
